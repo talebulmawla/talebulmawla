@@ -1,4 +1,4 @@
-[[[![Web Designer](https://scontent.fdac14-1.fna.fbcdn.net/v/t39.30808-6/449135020_122160232070137478_7693321062088680485_n.png?_nc_cat=105&ccb=1-7&_nc_sid=cc71e4&_nc_eui2=AeE6CVbTKDSZNROfjcnjFNvKO-cl-tZv2EM75yX61m_YQzcUHXZk-6miUgC-eXAkLPZJmdovVFpSm9eSMtcw4yrb&_nc_ohc=IOPdYXKJFEcQ7kNvgHUayvw&_nc_ht=scontent.fdac14-1.fna&oh=00_AYDywpr08QR68IeO5W4nFTxZFvNn9xHhNDDexnxC8oXr4w&oe=6680CA51)](https://www.facebook.com/photo/?fbid=122160232076137478&set=a.122104814390137478)](https://www.facebook.com/photo/?fbid=122160232076137478&set=a.122104814390137478)](https://scontent.fdac14-1.fna.fbcdn.net/v/t39.30808-6/449135020_122160232070137478_7693321062088680485_n.png?_nc_cat=105&ccb=1-7&_nc_sid=cc71e4&_nc_ohc=ZzjvkQd9sqoQ7kNvgGpnU99&_nc_ht=scontent.fdac14-1.fna&oh=00_AYAhr6BoaZQ34aNj-LVggsfY1HDVRGJcMZnghgP5G3YF3A&oe=66899451)
+https://www.facebook.com/photo/?fbid=122160232076137478&set=a.122104814390137478
 ### Hi there 👋, I am Talebul Mawla
 #### Web Designer
 
