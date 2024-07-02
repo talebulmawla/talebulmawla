@@ -1,4 +1,3 @@
-https://www.facebook.com/photo/?fbid=122160232076137478&set=a.122104814390137478
 ### Hi there 👋, I am Talebul Mawla
 #### Web Designer
 
